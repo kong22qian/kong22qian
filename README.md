@@ -1,5 +1,12 @@
 ### Hi there 👋
 
+- 欢迎来到WCMK的主页！！！😘😘😘
+- 📧 Contact me about : jtjdjmw@gmail.com 👨‍💻
+- 💬 My blog 👉 https://wcmk.github.io/
+- 🐎 Cute new people demand attention 👀👀👀
+- 🏫 📚 Stay at home in college🧑‍🎓 
+
+
 <!--
 **WCMK/WCMK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
